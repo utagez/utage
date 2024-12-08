@@ -4,9 +4,8 @@
 <p align="center">
 <img src="https://static.wikia.nocookie.net/fearandhunger/images/e/e3/CaharaSprite.gif/revision/latest/scale-to-width/360?cb=20190309183258" width="180" height="280"> </p> 
 
-
 <p align="center">
-<img  src="https://64.media.tumblr.com/0797ae4a8ef51d35fc6a20ee7f0004d4/805ebeae154726ac-fb/s75x75_c1/09a9d2e7694dcb8ad8938035769af43599417d20.gifv">﹑ 
+<img  src="https://64.media.tumblr.com/0797ae4a8ef51d35fc6a20ee7f0004d4/805ebeae154726ac-fb/s75x75_c1/09a9d2e7694dcb8ad8938035769af43599417d20.gifv">
   <img src="https://64.media.tumblr.com/4c0a86b6ab71b8c92b929fecdfa76292/2a715612a9eb460f-8a/s75x75_c1/59d353c6f449d07e445c3226d52318b91e9fc4c4.gifv"> 
   <img src="https://64.media.tumblr.com/67e71583ebbff3fe02e8b8f124013e51/2a715612a9eb460f-1a/s75x75_c1/4fdd9cba30a73e76c7b4e3a25b42517c6232216e.gifv">
   <img src="https://64.media.tumblr.com/431a216c8746262c4afa662e5d652bed/2a715612a9eb460f-1b/s75x75_c1/6eac4b2baf92e3c7ee91d4842d642b3ccbd4bca2.gifv">
@@ -15,7 +14,7 @@
 <p align="center"> more info on rentry or straw page and visit ata book
 
 <p align="center">
-<img src="https://64.media.tumblr.com/7c38cb83bdae0fbd07085c084d711987/6af7dadd485721f5-53/s400x600/7aa6b2b71f5146c8fda18b72b71d1ddf190551c2.pnj"> </p>
+<img src="https://64.media.tumblr.com/7c38cb83bdae0fbd07085c084d711987/6af7dadd485721f5-53/s400x600/7aa6b2b71f5146c8fda18b72b71d1ddf190551c2.pnj"> 
 <p align="center"> ♱
 
 
