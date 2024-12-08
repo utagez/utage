@@ -1,2 +1,8 @@
 <p align="center">
-<img  src="https://64.media.tumblr.com/b80118d7f0ed181ec79497941d066cf2/72499008efe7eac0-18/s500x750/7e2348e11f1c47164ee3e6cc4436a640cfd6a3a7.gifv"> </p>
+<img src="https://static.wikia.nocookie.net/fearandhunger/images/e/e3/CaharaSprite.gif/revision/latest/scale-to-width/360?cb=20190309183258" width="270" height="380"> </p>
+
+
+
+<p align="center">
+<img  src="https://64.media.tumblr.com/0797ae4a8ef51d35fc6a20ee7f0004d4/805ebeae154726ac-fb/s75x75_c1/09a9d2e7694dcb8ad8938035769af43599417d20.gifv"> </p>
+
