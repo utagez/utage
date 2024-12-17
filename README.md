@@ -9,10 +9,13 @@
   
 <p align="center"> utage / uta◞ any int i dont bite just dont be a weirdo  
 <p align="center"> more info on rentry or straw page and visit ata book
+<p align="center"> -
+<p align="center"> u can find me near spawn or docks in any server if u
+<p align="center"> want to find me
 
 <p align="center">
 <img src="https://64.media.tumblr.com/7c38cb83bdae0fbd07085c084d711987/6af7dadd485721f5-53/s400x600/7aa6b2b71f5146c8fda18b72b71d1ddf190551c2.pnj"> 
-<p align="center"> ♱
+<p align="center">  
 
 
 <p align="center">
@@ -22,4 +25,3 @@
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/fc28c296-fedb-45a6-952f-5a9d6cca7e90/d2e37w7-8573b4fb-24d6-4b61-aba8-2135788cf088.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2ZjMjhjMjk2LWZlZGItNDVhNi05NTJmLTVhOWQ2Y2NhN2U5MFwvZDJlMzd3Ny04NTczYjRmYi0yNGQ2LTRiNjEtYWJhOC0yMTM1Nzg4Y2YwODguZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.Fi0EazvpioZZDe-VQ2AhWG5QbXlTSt75WfILZ_H4bdA">
 
 <p align="center">
-  u can usually see me either near spawn or docks
